@@ -1,0 +1,1 @@
+los Arpistas se dedican a promover la igualdad y la justicia y a mantener el poder alejado de las manos de quienes no lo merecen

@@ -1,0 +1,6 @@
+Los Magos Rojos sirven como una organización cuasi militar dentro de la jerarquía de **Thay** en la [[Nación de Thay]] Son agentes que operan de forma independiente y que responden solo a sus propios superiores, una jerarquía denotada por el propio poder e influencia personal del mago. Están bajo la protección y autoridad de **Szass Tam.**
+
+Los Magos Rojos surgieron como un grupo de élite de hechiceros especializados en el arte de la magia dentro de Thay. Esta nación fue fundada por magos que buscaban una sociedad donde la magia gobernara suprema, alejándose de las restricciones impuestas por otras civilizaciones.
+
+- **Magia Compleja y Trampas Arcanas:** Los Magos Rojos no solo dominan los hechizos comunes; suelen tener acceso a **hechizos personalizados y rituales de largo plazo** que pueden desatar catástrofes si no se interrumpen a tiempo.
+- **Protección Rúnica:** Las instalaciones y fortalezas de los Magos Rojos están protegidas por **trampas mágicas y guardianes no-muertos**, lo que hace que enfrentarlos en su territorio sea especialmente peligroso.

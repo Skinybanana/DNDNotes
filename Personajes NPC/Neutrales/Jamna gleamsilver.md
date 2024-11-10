@@ -1,0 +1,1 @@
+Es un miembro de la sociedad secreta [[Red negra]]

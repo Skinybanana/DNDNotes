@@ -1,0 +1,1 @@
+La Orden del Guantelete enfatiza sus valores en la fe, la vigilancia y la lucha constante contra la amenaza del mal. Muchos de sus miembros son clérigos y paladines, pero la orden da la bienvenida a cualquiera que comparta sus ideales. La Disciplina es la clave, y la orden está mucho más estructurada y jerarquizada que los Arpistas.
